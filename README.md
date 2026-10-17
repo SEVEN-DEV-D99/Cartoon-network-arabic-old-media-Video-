@@ -13,6 +13,5 @@ and Someone was  too freaky to record a kissing gumball clips
 
 And thankful the video, didn't send it to youtube .   
 and i see why   people was searching   Funniest Google search history   or  Funniest dog having a fun.  
-The bro trying to traumatize something 
 
 
